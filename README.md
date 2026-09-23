@@ -215,4 +215,4 @@ KingRoot PC is offered as a complete free version, providing all features and up
 Unlock the full potential of your Android device today! Download KingRoot PC now and experience the benefits of rooting.
 
 ---
-**Last updated:** 2026-09-23 18:03:16 UTC
+**Last updated:** 2026-09-23 21:52:33 UTC
